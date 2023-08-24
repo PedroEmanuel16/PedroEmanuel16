@@ -12,4 +12,4 @@ pedroemanuel070315@gmail.com
 
 @pedroemanuelrib
 
-![](https://media.tenor.com/1mwdqr51emcAAAAC/test-typing.gif)
+![_](https://media.tenor.com/1mwdqr51emcAAAAC/test-typing.gif)
